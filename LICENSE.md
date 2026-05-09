@@ -1,4 +1,4 @@
-
+Get the ultimate ClickUp for macOS script with ClickUp for macOS elite Script: dark mode & custom shortcuts. Featuring dark mode and custom shortcuts, it's the best choice for
 
 
 
